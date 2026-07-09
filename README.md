@@ -1,1 +1,1 @@
-# Meet-MInd
+# Meet-Mind
